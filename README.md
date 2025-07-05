@@ -1,15 +1,2 @@
-厂长资源最新版官方入口
-⚠ 如有打不开或者网页阻断，请尝试以下方法：
 
-5分钟后刷新页面。
-更换浏览器。
-切换数据流量或WIFI尝试。
-⚠ 温馨提示：网址前请确保添加 “https://”，以确保更顺畅访问。
-
-📌 最新启用地址：（请保存2-3个，防止丢失，保存的越多越好）
-💖 ➡️ 【最新地址1】 ：https://changzhangziyuan.wwwnav.com/
-💖 ➡️ 【永久地址】 ：https://www点czzy点site/（把点换成.再打开)
-
-✨ 重要提醒 ✨
-请收藏此页面或记住发布邮箱，以防迷路！
-（如果以上地址无法访问，请发送任意内容获取最新地址）
+<h2><strong>💙 厂长资源最新版官方入口</strong></h2><p>⚠ <strong>如有打不开或者网页阻断</strong>，请尝试以下方法：</p><ul><li>5分钟后刷新页面。</li><li>更换浏览器。</li><li>切换数据流量或WIFI尝试。</li></ul><p>⚠ <strong>温馨提示</strong>：网址前请确保添加 “https://”，以确保更顺畅访问。</p><h3><strong>📌 最新启用地址：（请保存2-3个，防止丢失，保存的越多越好）</strong></h3><p>💖 ➡️ <strong>【最新地址1】</strong> ：<a href="https://changzhangziyuan.wwwnav.com/">https://changzhangziyuan.wwwnav.com/</a></p><p>💖 ➡️ <strong>【永久地址】</strong> ：<a href="https://changzhangziyuan.wwwnav.com/">https://www点czzy点site/（把点换成.再打开</a>)</p><h3><strong>✨ 重要提醒 ✨</strong></h3><p>请收藏此页面或记住发布邮箱，以防迷路！</p><p>📧 <strong>邮箱联系方式</strong>: yinmi8799艾特gmail.com （艾特换成@）</p><p>（如果以上地址无法访问，请发送任意内容获取最新地址）</p>
